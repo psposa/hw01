@@ -14,9 +14,3 @@ I'm majoring in Public Policy and minoring in Statistics.
 **TV Shows?** The Witcher, Avatar: The Last Airbender, Broadchurch 
 
 **Albums?** *Imagination & the Misfit Kid* by Labrinth, *American Beauty / American Psycho* by Fall Out Boy, *Dear Wormwood* by The Oh Hellos, *Melodrama* by Lorde
-
-**Vines?** 
-
-[Juanita Loves Jesus] (https://www.youtube.com/results?search_query=juanita+loves+jesus)
-
-
