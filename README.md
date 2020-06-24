@@ -2,11 +2,9 @@
 
 ### Introduction
 
-![<br></br>Hello! My name is Pranathi Posa, and I'm a rising third-year in The College.](https://user-images.githubusercontent.com/67297411/85501690-7d090680-b5ab-11ea-9c45-1364676d9eda.png)
+![-](https://user-images.githubusercontent.com/67297411/85501690-7d090680-b5ab-11ea-9c45-1364676d9eda.png)
 
-
-I'm majoring in Public Policy and minoring in Statistics. I write and edit for 
-*The Maroon* and *Polytics*, and I'm also a part of ChoMUN.
+Hello! My name is Pranathi Posa, and I'm a rising third-year in The College. I'm majoring in Public Policy and minoring in Statistics. I write and edit for *The Maroon* and *Polytics*, and I'm also a part of ChoMUN.
 
 ### Here are Some of My Favorite...
 
